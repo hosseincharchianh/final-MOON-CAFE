@@ -1,7 +1,6 @@
 //////////////
 
-not resposive if you change height 😕 so dont change height please ;)
-i want to ......
+not resposive if you change height 😕 so dont change height 😂 ;)
 
 
 
